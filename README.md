@@ -1,0 +1,5 @@
+- 👋 Olaaa, me chamo Daiane Pereira ou pode me chamar pelo nick aqui do Github @Japacod
+- 👀 Me interesso por tecnologia, programação, assuntos relacionados a metodologias ágeis voltada para QA, assuntos gerais sobre suporte tecnico e atendimento ao cliente usuários de Software Houses. Também curto papinhos aleátorios sobre qualquer coisa que sirva para compartilhar conhecimento.
+- 🌱 Atualmente estou cursando Analise de Desenvolvimento de Sistemas na Ampli, estou mega adorando. Mas, sou formada e graduada em Ciências Contábeis.
+- 💞️ Procuro colaborar com a comunidade no que estiver ao meu alcance.
+- 📫 Meu whatsapp fica sempre disponível, seja para novas amizades quanto para o meio profissional (48) 99849-6681
